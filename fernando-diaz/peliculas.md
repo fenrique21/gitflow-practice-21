@@ -1,3 +1,0 @@
-Acción
-Terror
-Ficción
